@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows instant Extension: keyframe-animation & time-remapping offers the most advanced Shotcut for PC | Shotcut for Windows extension, with
 
 
 
